@@ -14,4 +14,6 @@ I think this pretty much sums it up:
 >                                                                                               — Robert Heinlein
 
 
-I blogged when I prepared for IPMAT. Got AIR 345 and bombed the interview. [Read it here](https://www.blogger.com/profile/04616121120100245533)
+I blogged when I prepared for IPMAT. Got AIR 345 and bombed the interview. [Read it here](https://tatvadesai.blogspot.com)
+
+I'm prepping for CAT rn. If you'd like, you can follow it [here](tatva.mataroa.blog)
